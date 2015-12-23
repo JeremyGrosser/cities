@@ -7,6 +7,7 @@ Coffee
 Victrola  
 Zeitgeist  
 Ballard Coffee Works  
+Caffè Fiorè  
 Uptown Espresso (coffee's nothing special, but it's a good place to chill)  
 
 Pastry/Donuts
