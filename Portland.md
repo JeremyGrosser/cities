@@ -23,7 +23,6 @@ Not-so-fancy Food
 Grassa (great house made pasta)  
 Byways Cafe (best breakfast)  
 Lardo (sandwiches)  
-Tilt (burgers, sandwiches - has breakfast, too)  
 Los Gorditas (burritos, etc. - only fast Mexican I like in Portland so far)  
 Little Big Burger (great fast burger and fries)  
 Kenny & Zuke's (amazing pastrami - great breakfast)  
